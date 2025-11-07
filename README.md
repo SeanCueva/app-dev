@@ -11,4 +11,4 @@ I'm not entirely a fan of series, however, I really liked **The Walking Dead** s
 | Big Hero 6 | Action |
 | Shang-Chi | Action |
 ---
-## I also read a lot of mangas and manhwas. :smiling_face_with_smiling_eyes:
+## I also read a lot of mangas and manhwas. 😊
